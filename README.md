@@ -14,5 +14,5 @@
 
 <p align="center">  C + H always welcome 
 
-<p align="center">
-<a href="https://rentry.co/deXXXpio" rel="nofollow"> rentry lalala </a>  
+<p align="center"> rentry | strawpage coming soon
+
