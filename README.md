@@ -14,5 +14,9 @@
 
 <p align="center">  C + H always welcome 
 
-<p align="center"> rentry | strawpage coming soon
+<p align="center"> rentry coming soon
+
+
+<p align="center">
+<a href="https://maxisstupid12020.straw.page/" rel="nofollow"> strawpage lalalaa </a>  
 
